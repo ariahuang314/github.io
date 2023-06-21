@@ -3,7 +3,7 @@
 
 W2 黄姝睿 11205501401
 作品访问链接：http://113.31.110.163/link/3kc7sOVr
-展示视频链接：
+展示视频链接：https://www.bilibili.com/video/BV1nz4y1v7RQ/?share_source=copy_web&vd_source=08346711e721f92db02e645504afdea8
 
 ## 场景与意义
 **场景：**  
